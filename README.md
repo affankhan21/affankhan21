@@ -13,7 +13,12 @@ I like  to stay alone, meet my friends once in a while ,watching fims.📽️
 Feel free to get in touch.🤝
 
 # Follow me on
-<a href="https://www.hackerrank.com/affankhan2108" target="_blank">
-<img src="   WhatsApp Image 2023-09-21 at 10.14.55 PM.jpeg" />
-  </a>
+HACKERANK LINK:"https://www.hackerrank.com/affankhan2108" 📊
+
+
+GMAIL :"affankhan2108@gmail.com"📧
+
+INSTAGRAM LINK :"https://instagram.com/affan4457?igshid=YTQwZjQ0NmI0OA=="🧑
+
+
 
