@@ -13,6 +13,7 @@ I like  to stay alone, meet my friends once in a while ,watching fims.📽️
 Feel free to get in touch.🤝
 
 # Follow me on
+LInkED IN:"linkedin.com/in/affan-khan-8aa477171"
 HACKERANK LINK:"https://www.hackerrank.com/affankhan2108" 📊
 
 
